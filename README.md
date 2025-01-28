@@ -1,12 +1,12 @@
 # Repository
 
-真人色情网站：
+🔞真人：
 
 www.pornhub.com
 
 www.xvideos.com
 
-动漫色情网站
+🔞动漫：
 
 www.iwara.tv
 
